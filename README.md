@@ -1,0 +1,1 @@
+# gall11_privacy_policy
